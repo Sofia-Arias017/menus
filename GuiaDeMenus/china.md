@@ -17,3 +17,9 @@ La cocina china es una de las más ricas y diversas de la región, con una varie
 - La leche de coco
 - El vino Osmanthus
 
+## Consejos
+- Usa ingredientes frescos y de calidad. 
+- Marina la carne antes de freírla. 
+- Espesa las salsas con harina de maíz y agua fría. 
+- Condimenta el aceite con jengibre y/o ajo antes de saltear. 
+
