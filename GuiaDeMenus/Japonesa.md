@@ -15,3 +15,7 @@ La gastronomía japonesa destaca por su sencillez y elegancia en cada plato. La 
 - Tequila.
 - Whisky.
 - El vino blanco semidulce, fresco y afrutado es una buena opción para acompañar el sushi. 
+
+## Consejos
+- Utilizar una sartén para cocinar los ingredientes para obtener una mezcla de sabores y texturas.
+- Cocinar y comer: los rollos de sushi se deben consumir frescos, así que es mejor cocinar y sentarse a comer inmediatamente.
