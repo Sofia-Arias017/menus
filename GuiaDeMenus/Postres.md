@@ -17,3 +17,6 @@ El postre es un plato dulce para después de la comida. Un postre es una comida 
 - Vinos blancos ligeros: Que son aromáticos, frutales y refrescantes, y van bien con postres de fruta o vainilla 
 - Vinos dulces: Como el Pedro Ximénez, el Mistela o el Moscatel, que combinan bien con tartas de manzana 
 - Vinos rosados secos: Que combinan bien con tartas de queso 
+
+## Consejos
+- La mayor parte de los postres se toman con cucharita, por ejemplo: helado, sorbetes, mousses, y macedonias. Con tenedor los siguientes: tortas, bizcochuelos, panqueques y similares. Con cuchillo y tenedor las frutas del modo en que lo vinos semanas atrás en otro pensamiento.
