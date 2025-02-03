@@ -9,3 +9,9 @@ La gastronomía japonesa destaca por su sencillez y elegancia en cada plato. La 
 - **Ramen**:Ramen es una de las comidas japonesas más populares. Es una combinación de rice y verduras, con una variedad de ingredientes, como pescado, verduras, frutas, y otros ingredientes. Ramen se presenta con una forma de presentación llamada nigiri, que consiste en una forma de presentación circular que se usa para mostrar la comida.
 
 - **Yakitori**:Yakitori es una de las comidas japonesas más populares. Es una combinación de rice y verduras, con una variedad de ingredientes, como pescado, verduras, frutas, y otros ingredientes. Yakitori se presenta con una forma de presentación llamada nigiri, que consiste en una forma de presentación circular que se usa para mostrar la comida.
+
+## Bebidas Recomendadas
+- Sake.
+- Tequila.
+- Whisky.
+- El vino blanco semidulce, fresco y afrutado es una buena opción para acompañar el sushi. 
