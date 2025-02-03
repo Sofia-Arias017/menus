@@ -16,3 +16,9 @@ Bebida de arroz
 - Smoothies 
 Smoothie de piña y colgada
 Smoothie de zanahoria
+
+## Consejos
+- Elegir una gran variedad de alimentos vegetales
+- Usar productos que simulen la carne, como albóndigas, butifarra negra vegana, escudella, fricandó, entre otros
+- Experimentar con especias y hierbas para realzar el sabor de tus platos
+- Aprovechar las salsas
