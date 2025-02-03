@@ -15,3 +15,9 @@ La cocina mexicana es una manifestación cultural que se caracteriza por su dive
 - Sotol.
 - Vinos, tinto, blanco y rosado.
 - Coctel Margarita.
+
+​
+## Consejos
+- Hervir o cocinar a fuego lento las carnes y verduras para que queden tiernas. 
+- Utilizar la nixtamalización para procesar el maíz y hacer la masa para las tortillas. 
+- Martajar los ingredientes en un molcajete para obtener sabores únicos. 
