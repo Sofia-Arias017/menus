@@ -8,3 +8,11 @@ La cocina vegetariana es un estilo de alimentación que se basa en el consumo de
 Si buscas algo delicioso para comer como opción vegana, estos ricos tomates verdes fritos son por lejos la mejor opción para hacer algo rápido y sencillo en pocos pasos. Los tomates verdes en especial tienen un sabor muy dulce, una textura más dura -ya que el tomate es una fruta y posee los mismos atributos- y un tono muy llamativo.
 
 - **Tofu Frito**:Una receta simple, rápida e igualmente exquisita para preparar con poco tiempo es freír el tofu y acompañarlo con arroces y pastas, ensaladas, u otros, pero, ¿como freír el tofu y dejarlo bien sabroso? -ya que el tofu frito sólo queda realmente muy desabrido- pues aquí una magnifica y muy simple idea. 
+
+## Bebidas Recomendadas
+- Bebidas vegetales 
+Bebida de avena
+Bebida de arroz
+- Smoothies 
+Smoothie de piña y colgada
+Smoothie de zanahoria
