@@ -17,3 +17,9 @@ Pot-au-feu: Cocido de buey y verduras.
 - Orangina: La bebida de naranja favorita.
 - Limonada Francesa.
 - Jarabe de granadina.
+
+## Consejos
+ - Reduce la grasa en las salsas
+- Enloquécete con los vegetales
+- Quítale la grasa a la carne
+- No le eches demasiada sal a tus platos
