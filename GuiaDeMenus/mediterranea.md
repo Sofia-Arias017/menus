@@ -26,3 +26,10 @@ El rakia es un tipo de licor (parecido al brandy) hecho con ciruelas, uvas, fram
 - Cócteles
 La sangría es un ponche alcohólico tradicional de España y Portugal. 
 El Brisa Griega es un cóctel mediterráneo que se elabora con ginebra de alta calidad, vermú seco, bitter de lavanda y zumo de lima. 
+
+## Consejos
+- Usa aceite de oliva en lugar de mantequilla. El aceite de oliva es una grasa saludable y monoinsaturada. 
+- Utiliza hierbas frescas como albahaca, cilantro, perejil, orégano y romero. 
+- Prepara los alimentos de forma sencilla, sin salsas ni jugos de carne. 
+- Utiliza una sola olla para preparar las recetas, como el risotto, la paella o el cuscús. 
+- Sirve fruta fresca como postre. 
