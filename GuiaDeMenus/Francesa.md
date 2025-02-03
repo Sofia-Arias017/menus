@@ -10,3 +10,10 @@ Pot-au-feu: Cocido de buey y verduras.
 - **Quiche Lorraine**: Tarta salada de huevos, nata, carnes y queso. 
 - **Croque-monsieur**: Sandwich de jamón y queso horneado. 
 - **Hachis parmentier**: Gratinado de puré de papas y carne picada. 
+
+## Bebidas Recomendadas
+- Citron Pressé: Un refrescante jugo de limón.
+- Sirop de Grenadine: Sabor dulce para tus bebidas.
+- Orangina: La bebida de naranja favorita.
+- Limonada Francesa.
+- Jarabe de granadina.
