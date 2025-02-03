@@ -15,3 +15,6 @@ La cocina de carnes se refiere a la preparación de carne mediante distintos mé
 - Vino tinto. Muchas personas le tienen miedo a guisar con este licor, pero la verdad es que es muy noble a la hora de usarlo. ...
 - Vino blanco o sidra. Este se usa para marinar pollo o pescado. ...
 Pulque.
+
+## Consejos
+i vas a preparar guisos o cocidos, debes salar la carne antes de meterla en la olla. Esto hará que la carne suelte su jugo y ligue mejor.
