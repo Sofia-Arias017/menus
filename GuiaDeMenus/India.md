@@ -9,3 +9,13 @@ La cocina india es una de las más ricas y diversas de la región, con una varie
 - **Biryani**: Biryani es una de las mejores opciones para comer en la cocina india. Es una de las mejores opciones para comer en la cocina india. Es una de las mejores opciones para comer en la cocina india. Es una de las mejores opciones para comer en la cocina india. Es una de las mejores opciones para comer en la cocina india.
 
 - **Samosas**: Samosas es una de las mejores opciones para comer en la cocina india. Es una de las mejores opciones para comer en la cocina india. Es una de las mejores opciones para comer en la cocina india. Es una de las mejores opciones para comer en la cocina india. Es una de las mejores opciones para comer en la cocina india.
+
+## Bebidas Recomendadas
+- Champagne.
+- Whisky.
+- Tequila.
+- Sauvignon blanc, Sylvaner, Moscato, Pinot gris, Torrontés, Garnacha tinta, Zinfandel, Brut, Jerez fino.
+- Cervezas Kingfisher, Taj Mahal. 
+- Cócteles Margaritas picantes, Martinis de mango, Mojitos de jengibre. 
+- Bebidas indias Té masala, Nimbu Pani (limonada india), Sol Kadhi. 
+
